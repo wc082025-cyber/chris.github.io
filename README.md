@@ -1,5 +1,7 @@
 # chris.github.io
 
+![3F0D1702-A250-4F5E-823B-FD48C2906E50_1_105_c](https://github.com/user-attachments/assets/fcd407b5-8f33-4ae8-a1d1-01e72d431d08)
+
 Background
 
 I started my two year studies as a photographer back in 2010 and took one year after that to learn about film.
